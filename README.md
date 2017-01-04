@@ -18,10 +18,15 @@ Give advices about care for _combination or oily skin with trouble_.
 
 
 >:+1: **RECOMMEND**:+1:
+>
 >-COSRX One step pimple clear pad
+>
 >-STRIDEX Sensitive with aloe
+>
 >-ZYMOGEN 어성초 발효 세럼
+>
 >-ZYMOGEN 센텔라 발효 크림
+>
 >-AVENE 오 떼르말 미스트
 
 
@@ -30,7 +35,9 @@ Give advices about care for _combination or oily skin with trouble_.
 
 
 >:+1: **RECOMMEND**:+1:
+>
 >-23years old BADECASIL
+>
 >-ALIVE LAB 센델라 드레싱 파우더
 
 
@@ -41,7 +48,9 @@ Give advices about care for _combination or oily skin with trouble_.
 
 
 >:+1: **RECOMMEND**:+1:
+>
 >-CAREZONE Doctor solution skin tone up mild sun
+>
 >-SIDMOOL Dr.troub blemish spot concealer
 
 
@@ -50,5 +59,7 @@ Use **ointment** that makes scar light.
 
 
 >:+1: **RECOMMEND**:+1:
+>
 >-동아제약 노스카나겔
+>
 >-대웅제약 이지듀 리페어컨트롤 EGF
